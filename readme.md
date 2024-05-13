@@ -1,0 +1,1 @@
+SolaraVision: advancing solar tracking systems & affordable panels. AI-powered app for easy access & monitoring. Nonprofit ensures accessibility & longevity. Join us in powering a sustainable future!
